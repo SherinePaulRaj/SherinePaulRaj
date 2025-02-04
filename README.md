@@ -1,6 +1,6 @@
 # 👋 Hello, I'm Sherine Paul Raj!
 
-🌍 **Location:** Boston, MA (Open to Relocation)  
+🌍 **Location:** College Park, Maryland, USA (Open to Relocation)  
 💼 **Cybersecurity Enthusiast | Offensive Security Advocate**  
 📧 [sherine.paulraj@gmail.com](mailto:sherine.paulraj@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/sherine-p/)
