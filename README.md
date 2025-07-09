@@ -1,7 +1,7 @@
 # 👋 Hello, I'm Sherine Paul Raj!
 
-🌍 **Location:** College Park, Maryland, USA (Open to Relocation)  
-💼 **Cybersecurity Enthusiast | Offensive Security Advocate**  
+🌍 **Location:** Austin, Texas, USA 
+💼 **Cybersecurity Enthusiast**  
 📧 [sherine.paulraj@gmail.com](mailto:sherine.paulraj@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/sherine-p/)
 
